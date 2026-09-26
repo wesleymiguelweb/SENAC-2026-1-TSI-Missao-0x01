@@ -1,0 +1,1 @@
+Moral da história, aprender matemática nos ajuda a nos questionar melhor, a realidade e a informação disponível só andam juntas quando postas a prova.
